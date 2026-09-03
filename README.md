@@ -1,4 +1,4 @@
-# Hey, I'm Pugazh 👋
+# Hey, I'm Pugal 👋
 
 ### AI-Powered UI/UX Designer & Web Creator
 
@@ -51,7 +51,7 @@ Still learning. Still creating. Still improving. ✨
 ### 📫 Let's Connect
 
 💼 [LinkedIn](https://www.linkedin.com/in/pugal-m)  
-📧 pugalpugal1437@gmail.com
+📧 hey.pugal.360@gmail.com
 
 ---
 
